@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DominiqueB28 But my Friedds call me Domo.
+- 👋 Hi, I’m @DominiqueB28 But my Friend's call me Domo.
 - i'm 28yrs old. 
 - 👀 I’m interested in Music, & Video Games
 - 🌱 I’m currently learning UX Design and Computer Software.
